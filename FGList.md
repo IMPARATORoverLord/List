@@ -20,3 +20,15 @@ Robert Stocker
 Jennifer McWollen
 Axel Caesar
 MichaeL William
+Alano Rizzotto
+Vladimir Aksyonov
+Daniel Harper
+Nolan Foster
+Scarlet Shields
+Kasumi Miyazaki
+Gerald Zaccarelli
+Margaret Shiftwell
+Raymond Woodrugh
+Owen McField
+Santiago Costa
+Norwyn Burningstalker
