@@ -1,3 +1,4 @@
+https://www.rina-roleplay.com/forum/birlik/1
 Erling_Asbjorn
 Henry_Grisfield
 Daniel_Harper
