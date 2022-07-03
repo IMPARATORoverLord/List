@@ -1,3 +1,4 @@
+https://www.rina-roleplay.com/forum/birlik/348
 Harold_Shegemi
 Michael_Carroll
 Lyzloca_Shegemi
